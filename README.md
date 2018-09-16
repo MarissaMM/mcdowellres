@@ -7,7 +7,22 @@ To gain acceptance into Ada Developers Academy to gain knowledge and experience 
 Bachelor of Arts: Early Childhood Education  
 August 2004-December 2008  
 Magna Cum Laude
+### **Skills and Qualifications**
+* Instructional Coaching and Professional Development
+* Microsoft Office Proficiency
+* Administrative Operations
+* Strong Interpersonal and Communication Skills
+* Strong Scheduling and Time Management Skills
+* Thrives within groups and individually
+* Fast learner
 ### **Work Experience**  
+**Education Unchained,** **_Co-Founder and President_**
+October 2016-Current
+*Creating the vision and mission for Education Unchained and subsequent community events and partnerships
+*Spearheading the launching of the Willing2Rise community event
+*Organizing and facilitating vendors for the Blackout Market
+*Developing partnerships with other organizations with vision and mission alignment i.e. Wonder of Women and Key Tech Labs
+*Uncovering opportunities to further the work of Education Unchained
 **Sylvan Learning Center,** **_Director of Education_**  
 September 2016-Current  
 * The highest earned revenue Learning Center in Washington State in 2016 through sales and client referrals  
@@ -32,11 +47,4 @@ August 2009-June 2011
 * Providing meaningful, rigorous learning experiences on grade level reading and math standards that are accessible for students with disabilities
 * Writing and implementing Individualized Education Programs, Behavior Intervention Plans and other special education documents
 * Communicate with all parties to ensure compliance with students’ paperwork, facilitate MEEGS and IEP meetings and ensure compliance of services 
-### **Skills and Qualifications**
-* Instructional Coaching and Professional Development
-* Microsoft Office Proficiency
-* Administrative Operations
-* Strong Interpersonal and Communication Skills
-* Strong Scheduling and Time Management Skills
-* Thrives within groups and individually
-* Fast learner
+

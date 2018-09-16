@@ -20,9 +20,8 @@ Magna Cum Laude
 October 2016-Current
 * Creating the vision and mission for Education Unchained and subsequent community events and partnerships
 * Spearheading the launching of the Willing2Rise community events
-* Organizing and facilitating vendors for the Blackout Market
+* Organizing and facilitating black owned business for a vendor fair called the Blackout Market
 * Developing partnerships with other organizations with vision and mission alignment i.e. Wonder of Women, Key Tech Labs, etc.
-* Uncovering opportunities to further the work of Education Unchained
 
 **Sylvan Learning Center,** **_Director of Education_**  
 September 2016-Current  

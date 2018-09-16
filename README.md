@@ -16,7 +16,6 @@ Magna Cum Laude
 * Thrives within groups and individually
 * Fast learner
 ### **Work Experience**
-
 **Education Unchained,** **_Co-Founder and President_**
 October 2016-Current
 * Creating the vision and mission for Education Unchained and subsequent community events and partnerships
